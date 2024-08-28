@@ -1,0 +1,2 @@
+# tugas-informatika
+harus slesai
